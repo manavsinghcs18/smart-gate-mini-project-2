@@ -1,0 +1,1 @@
+# smart-gate-mini-project-2
